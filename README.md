@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @azyle
+- 👋 Hi, I’m @elyza-j
 - 👀 I’m interested in guitars, anime, and coding
 - 🌱 I’m currently learning Hikaru Nara on guitar, to wood carve and how to improve my coding skills
 - 💞️ I’m looking to collaborate on ...
